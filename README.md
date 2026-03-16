@@ -1,5 +1,5 @@
 # 💫 About Me:
-IT Student<br><br>
+IT Student, i like to design UIs and match colors, i love motorsport, simracing and i try to understand how the worlds works everyday.<br><br>
 
 
 ## 🌐 Socials:
